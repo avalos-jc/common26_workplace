@@ -1,0 +1,1 @@
+# common26_workplace
